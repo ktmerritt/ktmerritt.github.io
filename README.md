@@ -1,1 +1,0 @@
-# ktmerritt.github.io
